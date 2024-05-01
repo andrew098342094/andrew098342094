@@ -2,4 +2,3 @@
 - 👀 I’m interested in VR, ch3ting and having over all fun
 - 📫 You can reach me out on discord: Andrew1223_
 - 😄 Pronouns: he/him
-- im gay 🏳️‍🌈
